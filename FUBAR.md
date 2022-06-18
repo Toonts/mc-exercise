@@ -13,7 +13,7 @@ https://www.flickr.com/photos/wonderlane/5759710907
 
 - Brown Mustard
 
-- Tomatoes
+- Cucumbers
 
 - Gochujang sauce
 
@@ -43,5 +43,6 @@ https://www.flickr.com/photos/wonderlane/5759710907
 <li>9. Have a beer</li>
 <li>10. Mayby two beers</li>
 <li>11. As many beers as you like</li>
+
 </ol>
 
