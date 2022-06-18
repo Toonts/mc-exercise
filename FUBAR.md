@@ -1,37 +1,38 @@
-## CheEseBurGer RecIpE
 
-- Great Value Buns
+## Burger Recipe
+
+https://www.flickr.com/photos/wonderlane/5759710907 
+
+- Whole wheat buns
 
 - 70/30 Beef patty
 
-- Red Onion
-
 - So much Bacon (thick cut)
 
-- Lettuce is for rabbits
+- Onions
 
-- Melted Velveeta
+- Brown Mustard
 
-## Steps to Make
+- Tomatoes
 
-1. Go to Walmart (pajamas required)
+- Gochujang sauce
 
-2. Buy above ingredients
+- Lettuce
 
-3. Go home
+- Meatball gum
 
-4. Cook bacon
+- Sweet Potato fries
 
-5. Realize you forgot the onion
+- Pickles side
 
-6. Repeat steps 1-3
+<ol>
+<li>1. Go to the store.</li>
+<li>2. Get all the items on the above list. </li>
+<li>3. Ask for paper.</li>
+<li>4. Drive home and prep the veggies</li>
+ <li>5. Realize you forgot the bacon
+<li>6. Grill the mushroom patty.</li>
+<li>7. Do not set your house on fire.</li>
+<li>8. Have a great meal (without bacon)!</li>
+</ol>
 
-7. Cook burger patty
-
-8. Toast buns
-
-9. Melt velveeta
-
-10. Slice onion
-
-11. Assemble and Enjoy
