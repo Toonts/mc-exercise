@@ -13,6 +13,3 @@
 - Gochujang sauce
 
 - Lettuce
-
-
-
