@@ -41,10 +41,14 @@ https://www.flickr.com/photos/wonderlane/5759710907
  
 <li>7. Do not set your house on fire.</li>
 <li>8. Have a great meal (without bacon)!</li>
-<li>9. Have a 12 beers</li>
-<li>10. Mayby 5 more beers</li>
-<li>11. As many beers as you like</li>
 
-</ol> 
+
+<li> 9. No beers allowed!!!! </li>
+
+
+
+
+</o
+\l> 
 
 
