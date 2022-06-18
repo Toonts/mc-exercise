@@ -39,6 +39,20 @@ https://www.flickr.com/photos/wonderlane/5759710907
 <li> 7. No beers allowed!!!! </li>
 </ol> 
 
+<p><strong>The last time you had a cheeseburger was too long ago. </strong> .Try not to drool when you think about the slightly charred, medium-rare meat nestled between soft brioche, cradled in crisp iceberg lettuce and flavour amplifying condiments. <strong> Why are you still reading this- go get a cheeseburger. </strong> </p>
+<p>A cheeseburger is more than just a sandwich, it is a wish fulfilled.</p>
+<p>The palatable sensation we lovingly refer to as The Cheeseburger has a distinguished and illustrious history. It was born from humble roots, only to rise to well-seasoned greatness.</p>
+
+
+<p>Bacon ipsum dolor amet boudin shank pork chop frankfurter hamburger, tail andouille kevin jerky ribeye tri-tip pig tongue pork belly. Beef ribs andouille pork belly, ham short ribs turducken drumstick hamburger meatball shankle venison corned beef beef ground round. Ham tenderloin kielbasa capicola tail short loin flank shankle ribeye jerky drumstick pancetta bresaola buffalo. Short ribs doner sausage ground round filet mignon, prosciutto kevin turkey.</p>
+
+<p>Turducken landjaeger brisket pig hamburger short loin jerky spare ribs. Andouille flank biltong buffalo pastrami tail. Buffalo turkey tongue jowl hamburger pancetta ball tip shankle. Turkey short loin pork loin, sirloin turducken pig kielbasa salami sausage beef ribs spare ribs jowl. Picanha pork turducken beef ribs chuck swine short loin beef bacon bresaola jerky.</p>
+
+<p> Ribeye spare ribs picanha pork chop pork belly chicken corned beef bresaola tongue short loin. Cupim boudin swine andouille tenderloin biltong shankle pork belly. Boudin jowl pig buffalo kevin pork chop, kielbasa pork belly swine ball tip. Ball tip pork belly strip steak leberkas. Prosciutto capicola buffalo, pork chop chicken hamburger jerky turducken pork belly shankle swine sausage. Bacon kielbasa pastrami short loin buffalo andouille drumstick short ribs leberkas. Ball tip picanha brisket pancetta sirloin t-bone meatball chislic tail flank rump bresaola.</p>
+
+<p> Burgdoggen corned beef cupim t-bone shoulder turkey jerky shank kevin filet mignon. Meatloaf porchetta kevin, fatback sirloin andouille doner picanha chuck jowl ham hock. Kevin shank swine biltong cupim, corned beef sirloin flank short loin pork. Pork loin hamburger pancetta, ham hock tail buffalo short ribs brisket porchetta shank beef pork chop prosciutto leberkas tri-tip. Shankle burgdoggen biltong turkey. Tri-tip t-bone fatback doner turkey andouille.</p>
+
+[^1]Shankle doner short ribs meatball cow. Jowl ground round ribeye jerky leberkas, ham spare ribs fatback doner. Meatloaf meatball corned beef, prosciutto t-bone sirloin jerky ham hock tri-tip pig ham rump hamburger. Sausage jerky kielbasa biltong picanha buffalo. Meatloaf spare ribs tongue rump turkey cupim, doner frankfurter jowl short ribs pancetta pork loin cow.
 
 
 
