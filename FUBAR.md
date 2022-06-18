@@ -44,7 +44,7 @@ https://www.flickr.com/photos/wonderlane/5759710907
 <p>The palatable sensation we lovingly refer to as The Cheeseburger has a distinguished and illustrious history. It was born from humble roots, only to rise to well-seasoned greatness.</p>
 
 
-<p>Bacon ipsum dolor amet boudin shank pork chop frankfurter hamburger, tail andouille kevin jerky ribeye tri-tip pig tongue pork belly. Beef ribs andouille pork belly, ham short ribs turducken drumstick hamburger meatball shankle venison corned beef beef ground round. Ham tenderloin kielbasa capicola tail short loin flank shankle ribeye jerky drumstick pancetta bresaola buffalo. Short ribs doner sausage ground round filet mignon, prosciutto kevin turkey.</p>
+><p>Bacon ipsum dolor amet boudin shank pork chop frankfurter hamburger, tail andouille kevin jerky ribeye tri-tip pig tongue pork belly. Beef ribs andouille pork belly, ham short ribs turducken drumstick hamburger meatball shankle venison corned beef beef ground round. Ham tenderloin kielbasa capicola tail short loin flank shankle ribeye jerky drumstick pancetta bresaola buffalo. Short ribs doner sausage ground round filet mignon, prosciutto kevin turkey.</p>
 
 <p>Turducken landjaeger brisket pig hamburger short loin jerky spare ribs. Andouille flank biltong buffalo pastrami tail. Buffalo turkey tongue jowl hamburger pancetta ball tip shankle. Turkey short loin pork loin, sirloin turducken pig kielbasa salami sausage beef ribs spare ribs jowl. Picanha pork turducken beef ribs chuck swine short loin beef bacon bresaola jerky.</p>
 
