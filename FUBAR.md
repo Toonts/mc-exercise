@@ -9,23 +9,24 @@ https://www.flickr.com/photos/wonderlane/5759710907
 
 - So much Bacon (thick cut)
 
-- Onions
+- grilled onions
 
-- Brown Mustard
+- grey puppon
 
 - Cucumbers
 
 - Gochujang sauce
 
-- Lettuce
+- alfalfa sprouts
 
 - Meatball gum
 
-- Sweet Potato fries
+- waffle fries
+
 
 - Pickles side
 
-- Tomato
+- heirloom tomato
 
 - Avocado
 
@@ -40,8 +41,8 @@ https://www.flickr.com/photos/wonderlane/5759710907
 <li>6. Grill the mushroom patty.</li>
 <li>7. Do not set your house on fire.</li>
 <li>8. Have a great meal (without bacon)!</li>
-<li>9. Have a beer</li>
-<li>10. Mayby two beers</li>
+<li>9. Have a 12 beers</li>
+<li>10. Mayby 5 more beers</li>
 <li>11. As many beers as you like</li>
 
 </ol>
