@@ -9,25 +9,21 @@ https://www.flickr.com/photos/wonderlane/5759710907
 
 - So much Bacon (thick cut)
 
-- grilled onions
+- Grilled onions
 
-- grey puppon
+- Grey puppon
 
 - Cucumbers
 
-
-
-- alfalfa sprouts
+- Alfalfa sprouts
 
 - Meatball gum
 
-
-- waffle fries
-
+- Waffle fries
 
 - Pickles side
 
-- heirloom tomato
+- Heirloom tomato
 
 - Avocado
 
@@ -38,18 +34,15 @@ https://www.flickr.com/photos/wonderlane/5759710907
 <li>2. Get all the items on the above list. </li>
 <li>3. Ask for paper.</li>
 <li>4. Drive home and prep the veggies</li>
- 
-<li>7. Do not set your house on fire.</li>
-<li>8. Have a great meal (without bacon)!</li>
-<li>9. Have a 12 beers</li>
-<li>10. Mayby 5 more beers</li>
-<li>11. As many beers as you like</li>
-
+<li>5. Do not set your house on fire.</li>
+<li>6. Have a sad meal without beer or bacon</li>
+<li> 7. No beers allowed!!!! </li>
 </ol> 
 
 <p><strong>The last time you had a cheeseburger was too long ago. </strong> .Try not to drool when you think about the slightly charred, medium-rare meat nestled between soft brioche, cradled in crisp iceberg lettuce and flavour amplifying condiments. <strong> Why are you still reading this- go get a cheeseburger. </strong> </p>
 <p>A cheeseburger is more than just a sandwich, it is a wish fulfilled.</p>
 <p>The palatable sensation we lovingly refer to as The Cheeseburger has a distinguished and illustrious history. It was born from humble roots, only to rise to well-seasoned greatness.</p>
+
 
 <p>Bacon ipsum dolor amet boudin shank pork chop frankfurter hamburger, tail andouille kevin jerky ribeye tri-tip pig tongue pork belly. Beef ribs andouille pork belly, ham short ribs turducken drumstick hamburger meatball shankle venison corned beef beef ground round. Ham tenderloin kielbasa capicola tail short loin flank shankle ribeye jerky drumstick pancetta bresaola buffalo. Short ribs doner sausage ground round filet mignon, prosciutto kevin turkey.</p>
 
@@ -60,3 +53,6 @@ https://www.flickr.com/photos/wonderlane/5759710907
 <p> Burgdoggen corned beef cupim t-bone shoulder turkey jerky shank kevin filet mignon. Meatloaf porchetta kevin, fatback sirloin andouille doner picanha chuck jowl ham hock. Kevin shank swine biltong cupim, corned beef sirloin flank short loin pork. Pork loin hamburger pancetta, ham hock tail buffalo short ribs brisket porchetta shank beef pork chop prosciutto leberkas tri-tip. Shankle burgdoggen biltong turkey. Tri-tip t-bone fatback doner turkey andouille.</p>
 
 [^1]Shankle doner short ribs meatball cow. Jowl ground round ribeye jerky leberkas, ham spare ribs fatback doner. Meatloaf meatball corned beef, prosciutto t-bone sirloin jerky ham hock tri-tip pig ham rump hamburger. Sausage jerky kielbasa biltong picanha buffalo. Meatloaf spare ribs tongue rump turkey cupim, doner frankfurter jowl short ribs pancetta pork loin cow.
+
+
+
