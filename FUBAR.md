@@ -9,25 +9,21 @@ https://www.flickr.com/photos/wonderlane/5759710907
 
 - So much Bacon (thick cut)
 
-- grilled onions
+- Grilled onions
 
-- grey puppon
+- Grey puppon
 
 - Cucumbers
 
-
-
-- alfalfa sprouts
+- Alfalfa sprouts
 
 - Meatball gum
 
-
-- waffle fries
-
+- Waffle fries
 
 - Pickles side
 
-- heirloom tomato
+- Heirloom tomato
 
 - Avocado
 
@@ -38,17 +34,11 @@ https://www.flickr.com/photos/wonderlane/5759710907
 <li>2. Get all the items on the above list. </li>
 <li>3. Ask for paper.</li>
 <li>4. Drive home and prep the veggies</li>
- 
-<li>7. Do not set your house on fire.</li>
-<li>8. Have a great meal (without bacon)!</li>
+<li>5. Do not set your house on fire.</li>
+<li>6. Have a sad meal without beer or bacon</li>
+<li> 7. No beers allowed!!!! </li>
+</ol> 
 
 
-<li> 9. No beers allowed!!!! </li>
-
-
-
-
-</o
-\l> 
 
 
